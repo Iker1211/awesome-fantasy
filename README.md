@@ -914,6 +914,12 @@ Books:
 
 ### Satire
 
+#### [Cuentos de Humor y Sátira](https://www.goodreads.com/book/show/73476.Cuentos_de_Humor_y_S_tira?ac=1&from_search=true&qid=V1wjyq4BKS&rank=4) (1983) _by [Edgar Allan Poe](https://www.goodreads.com/author/show/4624490.Edgar_Allan_Poe)_ [4.19]
+
+This is an unique and little known book from the famous genius, and one of the firsts that I read. The scenes and ocurrences that he created where from another state of mind. It is difficult to imagine how a mind from so many years ago could conceive such improbable images. -[@Iker1211](https://github.com/Iker1211)
+
+> La presente publicación agrupa diversos cuentos de Edgar Allan Poe con una temática singular: el humor y la sátira. Constituyen una muestra de la obra que produjera este genio atormentado quien, en su breve existencia, fuera el creador de las obras más extrañas, complejas y fecundas. Las historias, los cuentos y poemas que salieron de su pluma fueron extraordinarios, como lo fue su vida, que se escribió en intermitentes trances de iluminación y angustia.
+
 #### [Discworld](https://en.wikipedia.org/wiki/Discworld) _by [Terry Pratchett](https://en.wikipedia.org/wiki/Terry_Pratchett)_
 
 Discworld is a massive, sprawling world outlined in dozens of books by the late Terry Pratchett. Rather than list them all here, here are a few that have been read by contributors of this list, with comments on each.
